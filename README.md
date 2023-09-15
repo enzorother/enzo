@@ -4,9 +4,6 @@
 <p></em>Londrina</em></p>
 
 
-
-
-
 <p>Meu nome é Enzo Rother, tenho 17 anos
 <p>e estou tendo que escrever isso
 <p>exatamente as </strong>12:27</strong><p>
